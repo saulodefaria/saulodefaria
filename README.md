@@ -20,7 +20,8 @@ I’ve built a few companies from scratch — including a **meal replacement bra
 (Yes, logistics and growth taught me as much as code did.)
 
 ## Let’s connect 🤝
-- 💼 LinkedIn: https://www.linkedin.com/in/saulodefaria/
+- 💼 LinkedIn: https://www.linkedin.com/in/saulodefaria
+- 🌐 Website: https://www.saulofaria.com
 
 ---
 
